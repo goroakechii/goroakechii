@@ -21,14 +21,14 @@ _________________
 
 ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ[carrd](https://blcksrrow.carrd.co/)ㅤㅤ[prns page](https://pronouns.cc/@detectiveprince)ㅤㅤ[pinterest](https://uk.pinterest.com/startourist/)ㅤㅤ[atabook](https://maenoaki.atabook.org/)ㅤㅤ[insta](https://www.instagram.com/ake2hi/)
 _________________
-ㅤㅤㅤㅤㅤㅤㅤ ㅤbritish (england located)! I am autistic, I have tics/tourette's and a high possibility for adhd and bpd too.
-ㅤㅤㅤㅤㅤㅤ ㅤㅤmy social anxiety is extreme so I tend to not interact first usually, but I love making new friends, so please int! just be under 18.
+ㅤㅤㅤㅤㅤㅤㅤ ㅤbritish (england located). I am autistic, I have tics/tourette's, bpd and possibly adhd as well.
+ㅤㅤㅤㅤㅤㅤ ㅤㅤI have terrible social anxiety, but I love making friends. as long as you're not 19+, I'd love to be friends!
 
-ㅤㅤㅤㅤㅤI am hyperfixated on persona 5, persona 3, and alien stage currently, but I have more interests I hold close to my heart.
+ㅤㅤㅤㅤㅤI am hyperfixated on persona 5, persona 3, persona 4, and alien stage currently, but I have more interests I hold close to my heart.
 ㅤㅤㅤㅤㅤI find it difficult to befriend people who have little to no of the same interests as me, I'm also awkward at first unless we click.
 
 _________________
 
-I can't talk to overly dry people, those who oftenly use too many tonetags (/j, etc are fine), or anything genuinely negative. I like a lot of alone time, I am mainly clingy and affectionate with my boyfriend, till. I have terrible jealousy, attatchment and abandonment issues.
+I can't talk to overly dry people, those who oftenly use too many tonetags (/j, etc are fine), or anything genuinely negative. I like a lot of alone time, but I can also be affectionate (depending). I have terrible jealousy, attatchment and abandonment issues.
 
 If that may bother you, I suggest you don't interact with me. reassurance means a lot to me, however I am quite independent, so I don't really ask for it. I often go quiet and distant if upset, so don't think you've done anything wrong. I prefer to discuss problems between us rather than argue, by the way.
