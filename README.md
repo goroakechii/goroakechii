@@ -25,8 +25,7 @@ _________________
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤI have terrible social anxiety, but I love making friends. as long as you're not 19+, I'd love to be friends!
 
 ㅤmy special interest are the persona games (persona 5, persona 3, persona 4), but I also really love alien stage, though I have more interests I hold close to my heart.
-ㅤ
-I find it difficult to befriend people who have little to no of the same interests as me, I'm also awkward at first unless we click.
+ㅤㅤㅤㅤI find it difficult to befriend people who have little to no of the same interests as me, I'm also awkward at first unless we click.
 
 _________________
 
