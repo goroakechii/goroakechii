@@ -22,7 +22,7 @@ _________________
 ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ[carrd](https://blcksrrow.carrd.co/)ㅤㅤ[prns page](https://pronouns.cc/@detectiveprince)ㅤㅤ[pinterest](https://uk.pinterest.com/startourist/)ㅤㅤ[atabook](https://maenoaki.atabook.org/)ㅤㅤ[insta](https://www.instagram.com/ake2hi/)
 _________________
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤbritish (england located). I am autistic, I have tics/tourette's, bpd and possibly adhd as well.
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤI have terrible social anxiety, but I love making friends. as long as you're not 19+, I'd love to be friends!
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤI have terrible social anxiety, but I love making friends. as long as you're not 19+, I'd love to be friends!
 
 ㅤㅤㅤㅤㅤI am hyperfixated on persona 5, persona 3, persona 4, and alien stage currently, but I have more interests I hold close to my heart.
 ㅤㅤㅤㅤㅤI find it difficult to befriend people who have little to no of the same interests as me, I'm also awkward at first unless we click.
