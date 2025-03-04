@@ -24,7 +24,7 @@ _________________
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤbritish (england located). I am autistic, I have tics/tourette's, bpd and possibly adhd as well.
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤI have terrible social anxiety, but I love making friends. as long as you're not 19+, I'd love to be friends!
 
-ㅤI am hyperfixated on persona 5, persona 3, persona 4, and alien stage currently, but I have more interests I hold close to my heart.
+ㅤmy special interest is the persona games (persona 5, persona 3, persona 4), but I also really love alien stage, though I have more interests I hold close to my heart.
 ㅤㅤㅤㅤI find it difficult to befriend people who have little to no of the same interests as me, I'm also awkward at first unless we click.
 
 _________________
