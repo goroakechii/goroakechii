@@ -22,6 +22,7 @@ _________________
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤI have terrible social anxiety, but I love making friends. as long as you're not 19+ (I'm almost 16), I'd love to be friends!
 
 my main interests are the persona games (persona 5, 3 & 4), kcd, assassin's creed and a few more - but mainly those.
+
 I find it difficult to befriend people who have little to no of the same interests as me, I'm also awkward at first unless we click.
 
 _________________
