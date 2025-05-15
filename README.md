@@ -2,8 +2,8 @@
    
    
 ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![alt text](https://komarev.com/ghpvc/?username=goroakechii&color=orange&label=Personal+Viewers+!+Your+Count+Number+:)
-ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤyou will normally find me sitting in the alnst area or walking around. my github is always the same and linked!
-ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤwhisper to talk to me, if I am alone I am 99% offtab or making a pony! I try to be nice as long as you are too.
+ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤyou will normally find me with my boyfriend or just sitting around. my github is always the same and linked..
+ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤwhisper to talk to me, if I am alone I am 99% offtab or making a pony.. I try to be nice as long as you are too.
 _________________
 <p align="center">
    <img src="https://64.media.tumblr.com/eafcb3c4092a7df932fcbad8d3f8a123/c460357baf702419-c1/s540x810/c7be068f81d6025bef5d20aee4723f352b76849e.pnj" />
@@ -27,6 +27,4 @@ I find it difficult to befriend people who have little to no of the same interes
 
 _________________
 
-I can't talk to overly dry people, those who oftenly use too many tonetags (/j, etc are fine), or anything genuinely negative. I like a lot of alone time, but I can also be affectionate (depending). I have terrible jealousy, attatchment and abandonment issues.
-
-If that may bother you, I suggest you don't interact with me. reassurance means a lot to me, however I am quite independent, so I don't really ask for it. I often go quiet and distant if upset, so don't think you've done anything wrong. I prefer to discuss problems between us rather than argue, by the way.
+I can't talk to overly dry people, those who oftenly use too many tonetags (/j, etc are fine), or anything genuinely negative. I like a lot of alone time and mainly to just be around my boyfriend (chester).
